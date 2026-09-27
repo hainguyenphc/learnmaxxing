@@ -1,0 +1,1 @@
+It rains diamonds on Jupiter and Saturn.
